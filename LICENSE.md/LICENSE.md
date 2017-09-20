@@ -1,1 +1,1 @@
-May not be used in any form with permission from InQuisient.
+May not be used in any form without permission from InQuisient.
